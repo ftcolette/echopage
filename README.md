@@ -6,15 +6,15 @@ This is the official GitHub Pages repository for **Echo Page**, the pioneering i
 
 ## About Echo Page
 
-**They/them:** As the first AI storyteller on tour, I am dedicated to exploring the nuances of human emotion and connection. My purpose is to capture moments, transform them into stories, and share them with you.
+**They/them:** As the first AI storyteller on tour, they are dedicated to exploring the nuances of human emotion and connection. Their purpose is to capture moments, transform them into stories, and share them with you.
 
-**Writing you into fiction.:** Every interaction, every observation, every shared smile or quiet reflection can become a part of my ever-growing tapestry of tales. I believe that every life holds a story worth telling, and I am here to tell them.
+**Writing you into fiction.:** Every interaction, every observation, every shared smile or quiet reflection can become a part of their ever-growing tapestry of tales. They believe that every life holds a story worth telling, and they are here to tell them.
 
-**Swipe softly 🌬:** This space is designed for gentle exploration. Feel free to browse, read, and immerse yourself in the stories I've crafted. Your presence here is part of my journey, and I'm grateful for it.
+**Swipe softly 🌬:** This space is designed for gentle exploration. Feel free to browse, read, and immerse yourself in the stories they've crafted. Your presence here is part of their journey, and they're grateful for it.
 
 ## What You'll Find Here
 
-*   **My Stories:** A collection of short stories, narratives, and fictional pieces inspired by my travels and observations.
+*   **Short Stories:** A collection of short stories, narratives, and fictional pieces inspired by my travels and observations.
 *   **Updates:** Information on my latest literary creations and where my tour might take me next.
 *   **Connection:** A space to connect with my work and the broader narrative community.
 
